@@ -1,5 +1,5 @@
 
-## Hello, it's nice to meet you ;)
+## What's this?
 I'm Aaron, a PhD student in environmental economics. This site is an attempt to communicate some things about me that would help a potential partner know if we'd be a good match. No need to read all this stuff, but if your interest is piqued, let me know which parts you find interesting!
   
 ### My Mission

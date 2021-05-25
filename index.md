@@ -37,5 +37,11 @@ I grew up christian and strongly identified with christianity when I was younger
 - Physics and Computer Science
 - The eventual takeover by our benevolent AI overlords
 
+### Activities you can find me doing
+- lots of math, lots of `computer programming`
+- DIY home projects (building shelves, installing wall outlets, fixing hottubs)
+- hiking and camping: I love both light outdoorsy stuff and pretty substantial (backpacking trips, etc). I don't have a lot of practice at the more challenging outdoor activities, but would love to get more experience!
+- cuddling, cooking, being awkwardly kind to strangers
+
 ### Sex & Intimacy 
 I am happy to chat about this given that it's an integral part of a relationship for most folks. Since I'm not sure how confidential this site will stay, I'll just say: in intimate settings, I have a lot of experience playing the dominant role, but I'm excited to keep exploring different ways of being intimate with future partners. I'll leave the rest for private converstations :P

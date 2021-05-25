@@ -23,10 +23,10 @@ Activities that I find exciting and desirable:
 - someone I can turn to in bed and ask about linear algebra or mathematical models of the world
 - climbing trees, rocks, running up rivers. Exploring and examing the world
 
-### Religious views</h2>
+### Religious views
 I grew up christian and strongly identified with christianity when I was younger, but I'd say I'm closer to agnostic now. The defniition of god that makes the most sense to me is god = creation; that is, my universal translator converts "God" to "the forces that push and pull particles and affect waves" whenever I am conversing with other humaniods about some type of motivating factor for life and the universe.
     
-### Intellectual topics I love to discuss</h2>
+### Intellectual topics I love to discuss
 - Topics from Real Analysis, Probability Theory, Linear Algebra, graduate level statistics, economic theory and 
 
 ### Sex & Intimacy 

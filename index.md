@@ -18,7 +18,7 @@ Our universe is a beautiful place, full of wonder and mystery. As scientists, we
 - Improving the world in practical and efficient ways
     
 ### Curiosity
-If I had to choose a word to describe myself, it would be curiousity. I want to know more; more about the world, more about myself, more about what makes things work the way they do. 
+If I had to choose a word to describe myself, it would be curiosity. I want to know more; more about the world, more about myself, more about what makes things work the way they do. 
     
 ### What I'm looking for in a partner
 Activities that I find exciting and desirable:

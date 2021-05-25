@@ -1,37 +1,33 @@
-## Welcome to GitHub Pages
 
-You can use the [editor on GitHub](https://github.com/date-aaron/date-aaron.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
+## Hello, it's nice to meet you ;)
+I'm Aaron, a PhD student in environmental economics. This site is an attempt to communicate some things about me that would help a potential partner know if we'd be a good match. No need to read all this stuff, but if your interest is piqued, let me know which parts you find interesting!
+  
+### My Mission
+Currently, my main goal is to use my lifeforce as efficeiently and joyously as possible to make the world a better place. I strive to use science and math (via economics) to help desribe our world's problems and test different solutions. Thoughout my life, I want to work with others and help build a community to make substaintial change in the world.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### Romantic Philosophy
+Long term, I'm looking for a partner to adventure with and strategically build our careers together. This most likely falls on the monogamous side of the specturum and I think I crave a copilot that I can build long term trust and plans with. I'm pretty flexible with how monogamous a relationship is, but if I were to estimate, it's about a 82.7% probability that my long term relationship will be farily monomagmous with some room for romantic exploration.
 
-### Markdown
+Short term, I'm convinced that successful dating is probably a numbers game. I'm first looking for people that I'm compatible with on paper and then hoping to have a couple dates so we can see if we jive in person. I think it's likely that most dates don't end in a relationship, but I am excited to be as genuine, kind, and romantic as possible.
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+### My Passions
+Our universe is a beautiful place, full of wonder and mystery. As scientists, we seek to understand the world, predict its behavior, and hopefully use that information to make the world work better.
+- Science
+- Nature / the universe
+    
+### What drives my curiousity
 
-```markdown
-Syntax highlighted code block
+    
+### What I'm looking for in a partner
+Activities that I find exciting and desirable:
+- someone I can turn to in bed and ask about linear algebra or mathematical models of the world
+- climbing trees, rocks, running up rivers. Exploring and examing the world
 
-# Header 1
-## Header 2
-### Header 3
+### Religious views</h2>
+I grew up christian and strongly identified with christianity when I was younger, but I'd say I'm closer to agnostic now. The defniition of god that makes the most sense to me is god = creation; that is, my universal translator converts "God" to "the forces that push and pull particles and affect waves" whenever I am conversing with other humaniods about some type of motivating factor for life and the universe.
+    
+### Intellectual topics I love to discuss</h2>
+- Topics from Real Analysis, Probability Theory, Linear Algebra, graduate level statistics, economic theory and 
 
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/date-aaron/date-aaron.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+### Sex & Intimacy 
+I am happy to chat about this given that it's an integral part of a relationship for most folks. Since I'm not sure how confidential this site will stay, I'll just say: in intimate settings, I have a lot of experience playing the dominant role, but I'm excited to keep exploring different ways of being intimate with future partners. I'll leave the rest for private converstations :P

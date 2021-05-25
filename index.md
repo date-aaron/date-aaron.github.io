@@ -35,6 +35,7 @@ I grew up christian and strongly identified with christianity when I was younger
 - Probability Theory
 - Economic and Econometric Theory
 - Physics and Computer Science
+- Gender and sexuality
 - The eventual takeover by our benevolent AI overlords
 
 ### Activities you can find me doing
@@ -42,6 +43,11 @@ I grew up christian and strongly identified with christianity when I was younger
 - DIY home projects (building shelves, installing wall outlets, fixing hottubs)
 - hiking and camping: I love both light outdoorsy stuff and pretty substantial (backpacking trips, etc). I don't have a lot of practice at the more challenging outdoor activities, but would love to get more experience!
 - cuddling, cooking, being awkwardly kind to strangers
+
+### Family & Children
+I value a positive relationship with family if possible, though I recognize there are many queer people out there for whom it is not possible or healthy to try to develop a positive family relationship. My relationship with my family has not always been good, but in recent years I've tried hard to develop something meaningful. I don't rely on my family but I do care about them.
+
+I love kids! I think children are just way cooler than most adults because they are curious and have a much higher capacity to learn and discuss. I'm not sure yet if I want kids of my own (TBD with a partner), but I hope to be a supportive guncle to my siblings and friend's children.
 
 ### Sex & Intimacy 
 I am happy to chat about this given that it's an integral part of a relationship for most folks. Since I'm not sure how confidential this site will stay, I'll just say: in intimate settings, I have a lot of experience playing the dominant role, but I'm excited to keep exploring different ways of being intimate with future partners. I'll leave the rest for private converstations :P

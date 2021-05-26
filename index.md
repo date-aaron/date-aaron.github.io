@@ -17,10 +17,10 @@ Activities that I find exciting and desirable:
 - someone I can turn to in bed and ask about linear algebra or mathematical models of the world or something super nerdy like that.
 - climbing trees, scuttling around on rocks, running up rivers. Exploring and examining the world together and sharing insights.
 - cooking and exercising together; practicing new skills together. I love the idea of being on a team tackling things together.
-- being silly 
+- being totally silly
 
 ### Religious views
-I grew up Christian and strongly identified with Christianity when I was younger, but I'm fairly agnostic now. The defniition of god that makes the most sense to me is god = creation; that is, my universal translator converts *God* to *the observable and unobservable forces that bind atoms and communicate information through space* whenever I am conversing with other humaniods about some type of motivating factor for life and the universe. I understand that religion is often used in ways that oppress people, but I also believe that religion can sometimes bring people together to 
+I grew up Christian and strongly identified with Christianity when I was younger, but I'm fairly agnostic now. The defniition of god that makes the most sense to me is god = creation; that is, my universal translator converts *God* to *the observable and unobservable forces that bind atoms and communicate information through space* whenever I am conversing with other humaniods about some type of motivating factor for life and the universe. I understand that religion is often used in ways that oppress people, but I also believe that religion can sometimes bring people together to work for positive change.
     
 ### Intellectual topics I love to discuss
 - Real Analysis, Linear Algebra

@@ -1,9 +1,9 @@
 
-## Who's Aaron
-I'm Aaron, a PhD student in environmental economics. This site is an attempt to communicate some things about me that would help a potential partner know if we'd be a good match. No need to read all this stuff, but if your interest is piqued, swipe right and let me know which parts you find interesting!
-  
+## A little about me
+I'm Aaron, a PhD student in environmental economics. This site is an attempt to communicate some things about me that would help a potential romantic partner know if we'd be a good match. No need to read all this stuff, but if your interest is piqued, swipe right and let me know which parts you find interesting!
+
 ### My Mission in Life
-Currently, my main goal is to use my lifeforce as efficeiently and joyously as possible to make the world a better place. I strive to use science and math (via economics) to help desribe our world's problems and test different solutions, in particular around climate change and issues of environmental justice. Thoughout my life, I want to work with others and help build a community to make substaintial change in the world.
+Currently, my main goal is to use my lifeforce as efficiently and joyously as possible to make the world a better place. I strive to use science and math (via economics) to help desribe our world's problems and test different solutions, in particular around climate change and issues of environmental justice. Thoughout my life, I want to work with others and help build a community to make substaintial change in the world.
 
 ### Romantic Philosophy
 Long term, I'm looking for a partner to adventure with and strategically build our careers together. This most likely falls on the monogamous side of the specturum and I think I crave a copilot that I can build long term trust and plans with. I'm pretty flexible with how monogamous a relationship is, but if I were to estimate, it's about a 82.7% probability that my long term relationship will be farily monogamous with some room for romantic exploration.

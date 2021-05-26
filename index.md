@@ -39,6 +39,9 @@ I grew up Christian and strongly identified with Christianity when I was younger
 - cuddling, cooking, being awkwardly kind to strangers
 - trying to find someone to watch a documentary with me
 
+[Here's an example](https://www.instagram.com/p/CPUmjyalDvz798xJzWkhjurhuaqWjRCRDg32n80/?utm_medium=copy_link)
+of the type of energy I'm trying to bring.
+
 ### Romantic philosophy
 Long term, I'm looking for a partner to adventure with and strategically build our careers together. This most likely falls on the monogamous side of the specturum and I think I crave a copilot that I can build long term trust and plans with. I'm pretty flexible with how monogamous a relationship is, but if I were to estimate, it's about a 82.7% probability that my long term relationship will be farily monogamous with some room for romantic exploration.
 

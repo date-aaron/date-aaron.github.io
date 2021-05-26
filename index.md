@@ -17,9 +17,10 @@ Activities that I find exciting and desirable:
 - someone I can turn to in bed and ask about linear algebra or mathematical models of the world or something super nerdy like that.
 - climbing trees, scuttling around on rocks, running up rivers. Exploring and examining the world together and sharing insights.
 - cooking and exercising together; practicing new skills together. I love the idea of being on a team tackling things together.
+- being silly 
 
 ### Religious views
-I grew up Christian and strongly identified with Christianity when I was younger, but I'm fairly agnostic now. The defniition of god that makes the most sense to me is god = creation; that is, my universal translator converts *God* to *the observable and unobservable forces that bind atoms and communicate information through space* whenever I am conversing with other humaniods about some type of motivating factor for life and the universe. I understand that religion is often used in ways that oppress people, but I also bel
+I grew up Christian and strongly identified with Christianity when I was younger, but I'm fairly agnostic now. The defniition of god that makes the most sense to me is god = creation; that is, my universal translator converts *God* to *the observable and unobservable forces that bind atoms and communicate information through space* whenever I am conversing with other humaniods about some type of motivating factor for life and the universe. I understand that religion is often used in ways that oppress people, but I also believe that religion can sometimes bring people together to 
     
 ### Intellectual topics I love to discuss
 - Real Analysis, Linear Algebra
@@ -44,9 +45,9 @@ Long term, I'm looking for a partner to adventure with and strategically build o
 Short term, I'm convinced that successful dating is probably a numbers game. I'm first looking for someone that I'm compatible with on paper and then hoping to have a couple dates to see if we jive in person. I think it's likely that most dates don't end in a relationship, but I am excited to be as genuine, kind, and romantic as possible regardless of the outcome. I'm definitely also looking for friends that are interested in making the world a better place and having endless conversations about abstract topics (adventure buds, too). I don't see any interaction with another cool brain as a waste and hope to keep in touch with people that are compatible in some way.
 
 ### Family & children
-I value a positive relationship with family, though I recognize there are many people out there for whom it may not be possible or healthy to develop/maintain a positive family relationship. My relationship with my family has not always been good but in recent years I've tried hard to develop something meaningful. I don't spend much time with them but I do care a lot.
+I value a positive relationship with family, though I recognize there are many people out there for whom it may not be possible or healthy to develop/maintain a positive family relationship. My relationship with my family has not always been good but in recent years I've tried hard to develop something meaningful. I don't spend much time with them but do care a lot.
 
-I love kids! I think children are just way cooler than most adults because they are curious and have a much higher capacity to learn and discuss. I'm not sure yet if I want kids of my own (TBD with a partner), but I hope to be a supportive guncle to my siblings and friend's children.
+I love kids! I think children are just way cooler than most adults because they are curious and have a much higher capacity to learn and discuss and be silly. I'm not sure yet if I want kids of my own (TBD with a partner), but I hope to be a supportive guncle to my siblings and friend's children.
 
 ### Sex & intimacy 
 I am happy to chat about this given that it's an integral part of a relationship for most folx. Since I'm not sure how confidential this site will stay, I'll just say: in intimate settings, I have a lot of experience playing the dominant role, but I'm excited to keep exploring different ways of being intimate with future partners. I'll leave the rest for private converstations :P

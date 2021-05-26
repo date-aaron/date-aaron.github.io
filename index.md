@@ -34,7 +34,7 @@ I grew up Christian and strongly identified with Christianity when I was younger
 ### Activities you can find me doing
 - lots of math, lots of`computer programming`
 - DIY home projects (building shelves, installing wall outlets, fixing hot tubs)
-- hiking and camping: I love both light outdoorsy stuff and pretty substantial trips (backpacking, etc). I don't have a lot of practice at the more challenging outdoor activities, but would love to get more experience!
+- hiking and camping: I love both light outdoorsy stuff and pretty substantial trips (backpacking, etc). I don't have a lot of practice with more challenging outdoor activities but would love to get more experience!
 - cuddling, cooking, being awkwardly kind to strangers
 - trying to find someone to watch a documentary with me
 

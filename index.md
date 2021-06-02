@@ -3,7 +3,7 @@
 I'm Aaron, a PhD student in environmental economics. This site is an attempt to communicate some things about me that would help a potential romantic partner know if we'd be a good match. No need to read all this stuff, but if your interest is piqued, swipe right and let me know which parts you find interesting!
 
 ### My mission in life
-Currently, my main goal is to use my lifeforce as efficiently and joyously as possible to make the world a better place. I strive to use science and math (via economics) to help desribe our world's problems and test different solutions; in particular, around climate change and issues of environmental justice. Thoughout my life, I want to work with others and help build a community to make substantial change in the world.
+Currently, my main goal is to use my lifeforce as efficiently and joyously as possible to make the world a better place. I strive to use science and math (via economics) to help desribe our world's problems and test different solutions; in particular, around climate change and issues of environmental justice. Thoughout my life, I want to work with others and help build a community to make substantial change in the world. I am building a career around working deeply on a problem/project to understand it fully.
 
 ### My passions
 Our universe is a beautiful place, full of wonder and mystery. It's also full of systems that oppress some and benefit others. As a scientist, I seek to understand the world through models and data and hopefully use that information to make the world work better for everyone. My main passions in life are:
@@ -15,22 +15,23 @@ Our universe is a beautiful place, full of wonder and mystery. It's also full of
 ### What I'm looking for in a partner
 Activities that I find exciting and desirable:
 - someone I can turn to in bed and ask about linear algebra or mathematical models of the world or something super nerdy like that.
+- my +1 to a relaxed but engaging dinner party discussing politics and science with grad students and professors.
 - climbing trees, scuttling around on rocks, running up rivers. Exploring and examining the world together and sharing insights.
-- cooking and exercising together; practicing new skills together. I love the idea of being on a team tackling things together.
+- cooking and exercising together; practicing new skills together. I love the idea of being on a team tackling things together. Power couple.
 - being totally silly
 
 ### Religious views
-I grew up Christian and strongly identified with Christianity when I was younger, but I'm fairly agnostic now. The defniition of god that makes the most sense to me is god = creation; that is, my universal translator converts *God* to *the observable and unobservable forces that bind atoms and communicate information through space* whenever I am conversing with other humaniods about some type of motivating factor for life and the universe. I understand that religion is often used in ways that oppress people, but I also believe that religion can sometimes bring people together to work for positive change.
+I grew up Christian and strongly identified with Christianity when I was younger, but I'm fairly agnostic now. The defniition of god that makes the most sense to me is god = creation; that is, whenever I am conversing with other humaniods about some type of motivating factor for life and the universe, my universal translator converts *God* to *the observable and unobservable forces that bind atoms and communicate information through space*. I understand that religion is often used in ways that oppress people, but I also believe that religion can sometimes bring people together to work for positive change. Some of my most precious moments learning about justice and making change have been from church -- Jesus was a major chiller after all and a radical activist.
     
 ### Intellectual topics I love to discuss
+- Economic and Econometric Theory
 - Real Analysis, Linear Algebra
 - Graduate level Statistics
 - Probability Theory
-- Economic and Econometric Theory
 - Physics and Computer Science
 - Gender and Sexuality
 - The eventual takeover by our benevolent AI overlords
-- Politics
+- Politics and Political Science
 
 ### Activities you can find me doing
 - lots of math, lots of`computer programming`
